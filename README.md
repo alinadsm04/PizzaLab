@@ -1,0 +1,6 @@
+![screenshot6](https://github.com/alinadsm04/PizzaLab/assets/123059059/cfdcbca6-0a99-4e6a-a3fa-44cb6e5e999e)
+![screenshot5](https://github.com/alinadsm04/PizzaLab/assets/123059059/af00c23c-aa54-4801-913b-c16916392ee8)
+![screenshot4](https://github.com/alinadsm04/PizzaLab/assets/123059059/f598f3c8-843b-450f-9518-8ec510134173)
+![screenshot3](https://github.com/alinadsm04/PizzaLab/assets/123059059/43243bb3-6424-4a08-84fb-55a14616a847)
+![screenshot2](https://github.com/alinadsm04/PizzaLab/assets/123059059/b3d0ce3e-db2d-4c13-86e5-a0b3cc05800f)
+![screenshot1](https://github.com/alinadsm04/PizzaLab/assets/123059059/fc9cacdb-5d27-4dde-9a46-ac2148dc0016)
